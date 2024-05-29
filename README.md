@@ -1,0 +1,1 @@
+# Language-Pack-Scots-Gaelic-for-DiscordPlus
